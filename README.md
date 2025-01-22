@@ -14,7 +14,11 @@ HOMESTUCK STAMPS/BLINKIES COLLECTION
 
 Striders:
 
-![image](https://github.com/user-attachments/assets/fda473e2-f063-44e1-985f-932b2f4eb012) ![image](https://github.com/user-attachments/assets/45b5706a-f6f0-45d8-9b37-fbeb69b2173b) ![IMG_0860](https://github.com/user-attachments/assets/95e74cd4-6db8-458e-b95d-9c13806c0970) ![IMG_0862](https://github.com/user-attachments/assets/f8b59a82-3df7-4910-a7f2-5968c8084477) ![IMG_0863](https://github.com/user-attachments/assets/df30e738-cda7-4337-970b-07aa6d4565a3)![IMG_0870](https://github.com/user-attachments/assets/d5b4bf6a-e349-4ad1-a7bc-8eed1415f26c)
+![image](https://github.com/user-attachments/assets/fda473e2-f063-44e1-985f-932b2f4eb012) ![image](https://github.com/user-attachments/assets/45b5706a-f6f0-45d8-9b37-fbeb69b2173b) ![IMG_0860](https://github.com/user-attachments/assets/95e74cd4-6db8-458e-b95d-9c13806c0970) ![IMG_0862](https://github.com/user-attachments/assets/f8b59a82-3df7-4910-a7f2-5968c8084477) ![IMG_0863](https://github.com/user-attachments/assets/df30e738-cda7-4337-970b-07aa6d4565a3)![IMG_0870](https://github.com/user-attachments/assets/d5b4bf6a-e349-4ad1-a7bc-8eed1415f26c)![IMG_0869](https://github.com/user-attachments/assets/c907c4b6-9793-4703-bcee-5738e534ea22)
+![IMG_0868](https://github.com/user-attachments/assets/b625bcaa-3bad-4aa9-88c4-3ae0f07379c0)
+![IMG_0867](https://github.com/user-attachments/assets/1ab9c183-752c-4231-85d8-de13196daf36)
+![IMG_0866](https://github.com/user-attachments/assets/72d39856-fe2f-46cf-a6f7-2a21c5242411)
+
 
 
 Captor:
