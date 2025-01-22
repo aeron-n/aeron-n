@@ -27,6 +27,15 @@ Captor:
 ![IMG_0865](https://github.com/user-attachments/assets/30b4e456-c1c1-4b37-bbab-159c3506162f)
 
 
+Pyrope:
+![IMG_0875](https://github.com/user-attachments/assets/5c230087-88da-4a85-a713-30ca78c8b594)![IMG_0877](https://github.com/user-attachments/assets/ec2b7dea-e6a2-4517-99df-595d91303cdd)
+![IMG_0876](https://github.com/user-attachments/assets/5247a34c-1f43-4631-9037-9f5c129fdf30) ![IMG_0874](https://github.com/user-attachments/assets/605c6321-df59-4cb8-bf1e-e346244d36a0) ![IMG_0881](https://github.com/user-attachments/assets/bae7687e-f10c-459e-8649-6d9b53f45958)
+![IMG_0880](https://github.com/user-attachments/assets/60f63377-9141-432c-8d25-27dcfdfb3b71)
+![IMG_0879](https://github.com/user-attachments/assets/4df0e6a2-f9f8-44c6-9d3f-294bffd5d997)
+![IMG_0878](https://github.com/user-attachments/assets/da801f3e-8352-43a9-9a7d-6e61d829fec1)
+
+
+
 ![IMG_0871](https://github.com/user-attachments/assets/c37ba19e-a212-433a-8c4e-1d5fbda66f84)
 
 
