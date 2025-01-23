@@ -30,11 +30,24 @@ Captor:
 
 
 Pyrope:
+
 ![IMG_0875](https://github.com/user-attachments/assets/5c230087-88da-4a85-a713-30ca78c8b594)![IMG_0877](https://github.com/user-attachments/assets/ec2b7dea-e6a2-4517-99df-595d91303cdd)
 ![IMG_0876](https://github.com/user-attachments/assets/5247a34c-1f43-4631-9037-9f5c129fdf30) ![IMG_0874](https://github.com/user-attachments/assets/605c6321-df59-4cb8-bf1e-e346244d36a0) ![IMG_0881](https://github.com/user-attachments/assets/bae7687e-f10c-459e-8649-6d9b53f45958)
 ![IMG_0880](https://github.com/user-attachments/assets/60f63377-9141-432c-8d25-27dcfdfb3b71)
 ![IMG_0879](https://github.com/user-attachments/assets/4df0e6a2-f9f8-44c6-9d3f-294bffd5d997)
 ![IMG_0878](https://github.com/user-attachments/assets/da801f3e-8352-43a9-9a7d-6e61d829fec1)
+
+
+Legion:
+
+![IMG_0934](https://github.com/user-attachments/assets/aa574a2a-36c3-4b07-b949-30e928508fcb)
+![IMG_0933](https://github.com/user-attachments/assets/1558e029-19ba-49c6-ac4c-a747dace62cc)
+![IMG_0932](https://github.com/user-attachments/assets/952df296-e99e-4318-ad38-837a24b178bb)
+![IMG_0931](https://github.com/user-attachments/assets/ed74d2b7-1c34-4673-b744-020398f58493)
+![IMG_0930](https://github.com/user-attachments/assets/6855c7ef-ce5c-40b5-8797-6f790759b7aa)
+![IMG_0929](https://github.com/user-attachments/assets/ec7d9a23-3230-420d-975a-041b08028857)
+![IMG_0928](https://github.com/user-attachments/assets/aa905d39-efed-4526-932a-dadd63e36634)
+
 
 
 
