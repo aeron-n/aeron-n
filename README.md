@@ -10,6 +10,8 @@ Please do not be rude/bully/troll me or anyone of my friends, you can be pretty 
 
 I'll add more as needed >:]
 
+LOOK/DRAW ON MY STRAWPAGE >:]
+
 HOMESTUCK STAMPS/BLINKIES COLLECTION
 
 Striders:
